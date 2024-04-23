@@ -2,4 +2,4 @@
 
 Lorem Ipsum dolor est.
 
-Hier könnte Ihre Werbung stehen!
+Hier könnte Ihre Nachricht stehen!
